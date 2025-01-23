@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑‍💻 A simple guy building awesome mobile apps 📱<br><br>🔨 Personal projects<br>🌱 Daily Log -> https://dailylog.crxapplications.com/<br>💡 Idea Spark -> https://ideaspark.crxapplications.com/<br>⏲️ Focus Rings -> https://focusrings.crxapplications.com
+🧑‍💻 A simple guy building awesome mobile apps 📱<br><br>🔨 Personal projects<br>🌱 Daily Log -> https://dailylog.crxapplications.com/<br>💡 Idea Spark -> https://ideaspark.crxapplications.com/<br>⏲️ Deep Work -> https://focusrings.crxapplications.com
 
 
 ## 🌐 Socials:
